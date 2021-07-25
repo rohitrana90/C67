@@ -45,3 +45,6 @@ She probably has a back tattoo. So slutty.
 John would secretly hope to see Steve and Rebecca fighting. He would fantasize about seeing their silhouettes through the window, Rebecca throwing the telephone at Steve and him ducking but it still hitting him in the head. John would get aroused by this fantasy.
 
 I’ll say something cool, like “The coffee’s not the only thing hot in here.” And she’ll probably be like, “I get off at seven.” And I’ll probably say something like “I don’t have a real job, so any time’s good for me.” Jesus, who am I kidding? I’m a loser. She would never like me. Even a string
+And maybe I will get a slice of that pumpkin loaf. I think I had it before. I think I definitely liked it. I think it must be seasonal. I haven’t seen it in a while.
+
+I’ll eat and drink and then get back to work. Everything seems to be flowing well. It was a little tough getting into it but now it’s really flowing. It’s weird how I do that—how I think I can’t write something and suddenly I’m carried away and then I can’t stop writing. I think I’m too hard on myself. I think I punish myself for no reason. But I think I’m really hitting my stride now. I’ll just get that tea. That nice hibiscus tea.
